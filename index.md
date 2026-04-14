@@ -1,3 +1,3 @@
 ---
-title: 10zin2026
+title: Nextlevel10zin
 ---
