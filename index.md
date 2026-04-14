@@ -1,3 +1,3 @@
 ---
-title: 10zinxoxo
+title: 10zin2026
 ---
