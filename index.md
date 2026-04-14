@@ -1,3 +1,3 @@
 ---
-title: Nextlevel10zin
+title: 10zin
 ---
